@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AwesomDud
+- 👋 Hi, I’m Srinjay
 - 👀 I’m interested in theoretical physics
 
 
